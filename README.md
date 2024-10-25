@@ -61,9 +61,7 @@ I also have premium bots available for sale 💸
 
 Get All Bots And strategies:by contact by E-Mail lewisluseka@gmail.com OR by WhatsApp https://254703409799
 
-Join my telegram channel here : https://t.me/deriv_and_binary_bots
-
-If you want to get all the premium bot/strategy, 
+Join my telegram channel here : https://t.me/deriv_binary_forex_trading
 
 There are almost 40+ premium bots and strategies.\
 I created this combo to help people so that they can test more bot and they can find out their best-suited bot for their own. Not only this but all the upcoming future premium bots also free for you.If you like you can get the combo offer.
